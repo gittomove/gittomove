@@ -1,4 +1,4 @@
-[![MasterHead](https://1.bp.blogspot.com/-7A4WynwLsM...)](https://gittomove.io)
+[![MasterHead](https://1.bp.blogspot.com/-7A4WynwLsM...)]
 <h1 align="center">Hi 👋, I'm Maksat</h1>
 <h3 align="center">A Android native developer from Kazakhstan.</h3>
 <h1>	</h1>
