@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **maratov22.02@gmail.com**
 
-- ⚡ Fun fact **I had my own business selling gifts of Personalized Star Maps.**
+- ⚡ Fun fact **nothing ):**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
